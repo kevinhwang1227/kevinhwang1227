@@ -4,6 +4,6 @@
 
 ### Find me elsewhere 🌎
 
-[🚀: RocketPunch](https://www.rocketpunch.com/@kevinhwang1227) <br>
 [💼: LinkedIn](https://www.linkedin.com/in/kevin-hwang-sh) <br>
-[📸: Instagram](https://instagram.com/kevinhwang__) - School of Computing KAIST 🏀
+[📸: Instagram](https://instagram.com/kevinhwang__) - School of Computing KAIST 🏀 <br>
+[🚀: RocketPunch](https://www.rocketpunch.com/@kevinhwang1227) <br>
